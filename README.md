@@ -58,4 +58,4 @@ I would like to express my gratitude to The Azubi Africa team for their valuable
 📞 **Contact**
 =================
 
-For any questions, concerns, or suggestions regarding  this project, please contact us at jedkisiang@gmail.com.
+For any questions, concerns, or suggestions regarding  this project, please contact us at gyesidavid@gmail.com.
